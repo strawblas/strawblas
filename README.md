@@ -1,8 +1,8 @@
 <img width="650" height="200" alt="image" src="https://github.com/user-attachments/assets/89b37f67-f974-4063-af00-4252c7c16e77" />
 
-you can call me ANYTHANG!!! If you need something to go off i can go by soul, sol, strawb,
-
- etc, or even the character im cosplaying!!! i DO swing that way
+you can call me ANYTHANG!!! If you need something to go off i can go by soul, sol, strawb, etc, or even
+ 
+ the character im cosplaying!!! i DO swing that way
 
  I'm a MINOR.... so be wary....do not groom......
 
