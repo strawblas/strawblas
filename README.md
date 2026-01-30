@@ -1,4 +1,4 @@
-<img width="655" height="200" alt="image" src="https://github.com/user-attachments/assets/89b37f67-f974-4063-af00-4252c7c16e77" />
+<img width="650" height="200" alt="image" src="https://github.com/user-attachments/assets/89b37f67-f974-4063-af00-4252c7c16e77" />
 
 you can call me ANYTHANG!!! If you need something to go off i can go by soul, sol, strawb,
 
@@ -11,7 +11,7 @@ They/He/Purr + any neos idgaf
 I'm a FICTIONKIN...aka im major woke so. if YOU dont swing that way you dont wanna interact
 
 
-<img width="650" height="118" alt="image" src="https://github.com/user-attachments/assets/9bb17e00-00e7-42f0-9b4b-7721285d18de" />
+<img width="600" height="118" alt="image" src="https://github.com/user-attachments/assets/9bb17e00-00e7-42f0-9b4b-7721285d18de" />
 
 
 
@@ -37,5 +37,5 @@ like :)
 
 
 
-<img width="660" height="200" alt="image" src="https://github.com/user-attachments/assets/6a30822a-15c3-4c4f-b96d-d870ac13ce11" />
+<img width="650" height="200" alt="image" src="https://github.com/user-attachments/assets/6a30822a-15c3-4c4f-b96d-d870ac13ce11" />
 
