@@ -11,7 +11,7 @@ They/He/Purr + any neos idgaf
 I'm a FICTIONKIN...aka im major woke so. if YOU dont swing that way you dont wanna interact
 
 
-<img width="650" height="118" alt="image" src="https://github.com/user-attachments/assets/9bb17e00-00e7-42f0-9b4b-7721285d18de" />
+<img width="645" height="118" alt="image" src="https://github.com/user-attachments/assets/9bb17e00-00e7-42f0-9b4b-7721285d18de" />
 
 
 
