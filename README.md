@@ -15,25 +15,21 @@ I'm a FICTIONKIN...aka im major woke so. if YOU dont swing that way you dont wan
 
 
 
-As my little bio implies, my user is going to be Strawb_Sugardazed nearly anywhere!!!!
+As my little bio implies, my user is going to be Strawb_Sugardazed nearly anywhere!!!! Especially on 
 
-Especially on discord! If you wanna be buds you can message me :) Though do be wary
+discord! If you wanna be buds you can message me :) Though do be wary because I am likely
 
-Because I am likely neurodivergent and cant always stand texting constantly or calling
+neurodivergent and cant always stand texting constantly or calling
 
-unless with someone i already know... plsss dont take it as me being rude i am simply
+unless with someone i already know... plsss dont take it as me being rude i am simply just feeling
 
-just feeling awkward and dont know how to talk to people lol
+awkward and dont know how to talk to people lol
 
-I talk in ways i enjoy that may not make sense so keep that in mind :p (such as using
+I talk in ways i enjoy that may not make sense so keep that in mind :p (such as using a typing quirk
 
-a typing quirk (doubled i's) around people i trust trust!!!!!! tell me if u dont want me doing 
+(doubled i's) around people i trust trust!!!!!! tell me if u dont want me doing that pls ok)
 
-that pls ok)
-
-I have a BUNCHA things i enjoy!!! My tumblr is a reliable source to show some of the things i
-
-like :) 
+I have a BUNCHA things i enjoy!!! My tumblr is a reliable source to show some of the things i like :) 
 
 
 
